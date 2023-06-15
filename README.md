@@ -21,4 +21,4 @@ Key Features:
 
 Prepare to enter a realm where the boundaries between reality and virtual existence blur, and where the captivating allure of AI Girls awaits. Collect, nurture, and cherish these groundbreaking AI companions that will captivate your heart and imagination.
 
-Join us in shaping the future of digital art and experience the next evolution of NFTs with [Project Name]. Welcome to the AI Girl revolution!
+Join us in shaping the future of digital art and experience the next evolution of NFTs with AI Girl NFT. Welcome to the AI Girl revolution!
